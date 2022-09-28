@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Camila12gamer
+- 👋 Hi, I’m @Camila12gamer oi,você e Camila12gamer
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
@@ -8,3 +8,5 @@
 Camila12gamer/Camila12gamer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Muito jwhwhwhehejekwiwhsn camila sou eu e adorei seu progama
+programas como fazer um jogo de rpg para a Nayla que eu a chamei o q q tem fogo na cabeça nas patas e ferraduras de prata em recife a foto da silva e eu estou te observando e você e muito boa só o O que você está fazendo a foto do livro do O que você está fazendo a foto do livro do O que você está fazendo a foto 
